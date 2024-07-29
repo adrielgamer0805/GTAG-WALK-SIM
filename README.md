@@ -1,3 +1,6 @@
+THIS IS NOT MINE! THIS IS A ASSET FROM KYLE THE SCIENTISTS DISCORD!!! 
+
+
 Added No Clip and probably some other stuff I forgot about. Press N to enter No Clip mode while flying.
 
 ## Controls
